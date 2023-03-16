@@ -5,7 +5,7 @@
 I'm intersted in code but I'm not developer
 
 - 🌱 I’m currently learning all things about development and specifically to learn it.
-- 👯 I’m looking to collaborate on many projects tonsee all the methodoly development
+- 👯 I’m looking to collaborate on many projects to see all the methodoly development
 -🤔 How to reach me: mirijaeddyrakotoharivelo@gmail.com
 
 
